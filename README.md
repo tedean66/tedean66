@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tedean66
 - 👀 I’m interested in ..Nft on opensea.io, trustwallet, etherum
 - 🌱 I’m currently learning ...Blockchain 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... metaverse
 - 📫 How to reach me ... thobday8@gmail.com
 
 <!---
